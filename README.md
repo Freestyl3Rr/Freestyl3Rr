@@ -1,0 +1,8 @@
+- 👋 Hi, I’m @Freestyl3Rr
+- 👀 I’m interested in ElonGate Charity
+- 🌱 I’m currently learning new things
+- 💞️ I’m looking to collaborate on anything
+- 📫 How to reach me DM OR EMail
+- 👨‍👩‍👧‍👦 Talking and writing Hungarian, Slovakian, English, Norwegian, Polish talking good, wrtting on 40-50 %
+- 🤩 I Want to learn programing languages also, already know some basics of Php, but want to learn more
+- 🙏 Im glad for being in this great place where i can collect some new intel! Thanks 🙏
